@@ -1,6 +1,6 @@
 # 超悦机场官网地址
 
-最新地址：[chaoyue.shop](https://www.chaoyue.shop/#/register?code=sHseEVC7)
+最新地址：[chaoyue.shop](https://www.chaoyue.shop/#/register?code=FqnPkdn7)
 
 ## 超悦机场介绍
 
